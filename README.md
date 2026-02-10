@@ -1,2 +1,2 @@
-# Findingzenith-
+# zenithzwrldd-
 ![alt text](https://cdn.discordapp.com/attachments/1468727877397909504/1470889092991684628/IMG_3167.png?ex=698cefb7&is=698b9e37&hm=c011225f026ed7014402247b90a493d7120c23a3560624b1c880eb450ba24daa&)
